@@ -1,1 +1,1 @@
-# .github
+totally not a games site
